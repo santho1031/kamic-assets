@@ -1,0 +1,1 @@
+# kamic-assets
